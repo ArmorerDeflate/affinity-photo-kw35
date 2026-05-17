@@ -1,4 +1,4 @@
-# 
+# custom Adobe Photoshop para PC addons é o melhor Adobe Photoshop para PC addons com construtor de formas e operações booleanas. Seguro, confiável e otimizado para máximo
 
 
 
